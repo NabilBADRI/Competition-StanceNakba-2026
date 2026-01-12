@@ -1,0 +1,1 @@
+# Competition-StanceNakba-2026
